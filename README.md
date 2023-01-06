@@ -149,3 +149,106 @@ Address: 192.248.152.37
 Name: 192.248.152.37.vultrusercontent.com
 
 Address: 192.248.152.37
+
+
+诈骗犯列表，2023年1月5日更新：
+电话：+1 6474913434	微信：baoyouqianwan	邮箱：lutao51820@gmail.com	用户名：shunzi66
+
+电话：+1 7784026168	微信：baoyouqianwan	邮箱：lutao51820@gmail.com	用户名：
+
+电话：+1 7784026168	微信：baoyouqianwan	邮箱：lutao51820@gmail.com	用户名：shunzi66
+
+电话：+1 7348888898	微信：+1 7348888898	邮箱：	+1 7348888898		用户名：ak0830
+
+电话：+1 5146137055	微信：+1 5146137055	邮箱：	+1 7348888898		用户名：+1 5146137055
+
+电话：+1 7348888898	微信：+1 7348888898	邮箱：	+1 7348888898		用户名：JK15
+
+电话：+1 7348888898	微信：+1 7348888898	邮箱：	lok46331@gmail.com		用户名：lok46331@gmail.com
+
+电话：+1 6474955234	微信：+1 6474955234	邮箱：	lok46331@gmail.com		用户名：fulong
+
+
+电话：+1 4166190935	微信：shenjunfeng15851	邮箱：	lok46331@gmail.com		用户名：shenjunfeng15851
+
+
+电话：+1 4166190935	微信：shenjunfeng15851	邮箱：	lok46331@gmail.com		用户名：shenjunfeng15851
+
+
+
+电话：+1 6477999010	微信：Yuehewan168	邮箱：	qianhua369@gmail.com	用户名：awan333
+
+电话：+1 6475499982	微信：+1 6475499982	邮箱：	+1 6475499982	用户名：Pikoshop
+
+电话：+1 6475499982	微信：+1 6475499982	邮箱：	+1 6475499982	用户名：Pikoshop
+
+电话：+64 78095222	微信：+64 78095222	邮箱：	qianhua369@gmail.com	用户名：atian666
+
+电话：97005033693	微信：97005033693	邮箱：	qianhua369@gmail.com	用户名：atian666
+
+
+电话：97005033693	微信：along668 	邮箱：	qianhua369@gmail.com	用户名：along668
+
+电话：+1 7205999969	微信：Yuehewan168 	邮箱：	qianhua369@gmail.com	用户名：along668
+
+
+电话：+1 7205999969	微信：Yuehewan168 	邮箱：	zhangzzz911@gmail.com	用户名：zhangzzz911@gmail.com
+
+
+电话：+1 7205999969	微信：Yuehewan168 	邮箱：lutao518520@gmail.com	用户名：lutao518520@gmail.com
+
+
+电话：+1 7205999969	微信：long_0857_	邮箱：lutao518520@gmail.com	用户名：long_0857_
+
+电话：+1 6474913434	微信：Yuehewan168	邮箱：lutao518520@gmail.com	用户名：long_0857_
+
+电话：+1 6477999101	微信：Yuehewan168	邮箱：lutao518520@gmail.com	用户名：jiefuhadi
+
+电话：+64 035688346	微信：Taohu780312	邮箱：fukshis@gmail.com	用户名：jiefuhadi
+
+
+电话：+61 488895326	微信：Taohu780312	邮箱：fukshis@gmail.com	用户名：jeffhardy
+
+电话：+61 488895326	微信：Taohu780312	邮箱：fulushouxi78@gmail.com 用户名：jeffhardy
+
+电话：+1 5146137055	微信：Yuehewan168	邮箱：lutao518520@gmail.com 用户名：shunzi66
+
+电话：+1 3052246193	微信：+1 3052246193	邮箱：888999lutao@gmail.com 用户名：Aaron111
+
+
+电话：+1 6474942575	微信：Yuehewan168	邮箱：zhangzzz911@gmail.com 用户名：laotian11
+
+
+电话：+1 6139122662	微信：Yuehewan168	邮箱：susu0857123@gmail.com 用户名：laotian11
+
+
+电话：+1 6474913434	微信：Yuehewan168	邮箱：susu0857123@gmail.com 用户名：laotian11
+
+
+电话：+1 6474936806	微信：Yuehewan168	邮箱：susu0857123@gmail.com 用户名：laotian11
+
+电话：+1 6474936806	微信：Yuehewan168	邮箱：susu0857123@gmail.com	用户名：atian0857
+
+
+
+电话：+1 3052246193	微信：Yuehewan168	邮箱：susu0857123@gmail.com	用户名：atian0857
+
+
+电话：+1 7786528790	微信：Yuehewan168	邮箱：zhangzzz911@gmail.com	用户名：ccc90
+
+
+电话：+1 6474942575	微信：Baoyouqianwan	邮箱：zhangzzz911@gmail.com	用户名：shouzhang00
+
+电话：+1 5146137055	微信：Baoyouqianwan	邮箱：zhangzzz911@gmail.com	用户名：shouzhang00
+
+
+电话：+1 5146137055	微信：Yuehewan168	邮箱：susu0857123@gmail.com	用户名：aqing516
+
+电话：+1 6474936806	微信：Yuehewan168	邮箱：susu0857123@gmail.com	用户名：aqing516
+
+电话：+1 5146137055	微信：Baoyouqianwan	邮箱：susu0857123@gmail.com	用户名：aqing516
+
+电话：+1 5146137500	微信：+1 6474932250	邮箱：susu0857123@gmail.com	用户名：wangzi168
+
+
+
